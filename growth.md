@@ -1,4 +1,5 @@
 # reading-notes
+1
 
 # growth mindset
   ### “Self, you need to embrace the growth mindset. The growth mindset is cool.”
